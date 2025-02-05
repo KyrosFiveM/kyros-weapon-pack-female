@@ -1,2 +1,1 @@
-# kyros-weapon-pack-female
-15 Custom, weapons
+Purchase Female on https://store.kyrosfivem.com/
